@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **shadowcelebekumma@gmail.com**
 
-- ⚡ Fun fact **I am work hard and smart enough to deliver the best projects and think like a strategic bulilder.**
+- ⚡ Fun fact **I am hardworking and smart enough to deliver the best projects and think like a strategic bulilder.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
