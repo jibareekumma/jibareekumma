@@ -11,7 +11,7 @@
 
 - 📝 I regularly write articles on [VS CODE](VS CODE)
 
-- 💬 Ask me about **HTML, CSS, SASS**
+- 💬 Ask me about **HTML, CSS, SASS, JAVASCRIPT**
 
 - 📫 How to reach me **shadowcelebekumma@gmail.com**
 
